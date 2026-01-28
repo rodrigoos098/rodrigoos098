@@ -14,9 +14,9 @@ o que me move é sempre ir além do tradicional. no momento estou aprofundando m
 
 **Contato:**  
 🌐 [Website](https://rodrigoos098.github.io)  
-💼 [LinkedIN](https://www.linkedin.com/in/rodrigo-oliveira-santos-03840a3a9/)  
+💼 [Linkedin](https://www.linkedin.com/in/rodrigo-oliveira-santos-03840a3a9/)  
 📷 [Instagram](https://instagram.com/rodrigoos.y)  
-📫 [rodrigoolitos@gmail.com]
+📫 [Email](rodrigoolitos@gmail.com)  
 
 ---
 *Ainda devo ter aquelas imagens do paint em algum HD por ai. Acho que hoje eu já consigo fazer a bola subir e descer ツ*
